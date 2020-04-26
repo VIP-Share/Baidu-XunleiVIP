@@ -15,6 +15,16 @@
      手机登陆的小伙伴记得把同步关了
      请选择微博账号登陆
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
+     4.26
+     账号：16534101184 密码：mianfeivip.comhj
+     账号：16534101187 密码：mianfeivip.comfd
+     账号：16534101253 密码：mianfeivip.com43
+     账号：16534101220 密码：mianfeivip.come5
+     账号：16532633963密码：mianfeivip.comd3
+     账号：16532964300密码：mianfeivip.com6g
+     账号：16534101246密码：mianfeivip.comas
+     账号：16534101248密码：mianfeivip.comsd
+
      4.25
      账号：16532633921 密码：mianfeivip.com64
      账号：13574861440 密码：dydeym444
@@ -27,46 +37,28 @@
      账号：16534101167 密码：mianfeivip.comtg
      账号：lb8bj50fgudy@game.weibo.com密码：4g0wy3747
      
-     4.24
-     账号：16532633803 密码：mianfeivip.com8f
-     账号：15200820034 密码：anwcio101
-     账号：17163053171 密码：238174uz
-     账号：16532633961 密码：mianfeivip.comg6
-     账号：16532633921 密码：mianfeivip.com64
-     账号：13289225624 密码：23er45
-     账号：15772491858 密码：suk24579
-     账号：16534101167 密码：mianfeivip.comtg
-     账号：18229852803 密码：ijxgop507
-     账号：16532633982 密码：mianfeivip.comd6
-     账号：16532633915 密码：mianfeivip.com83
 
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
       如果登录显示频繁，点击游戏后登录。
-      4.25
-      账号：zepjlrzbn密码：znhuywcm
-      账号：efwjvkojv密码：qnmkdeqp
+      4.26
+      账号：chibeng343密码：54558660
+      账号：youzong913密码：54558660
       
-      4.22
-      账号：mzr082oiw密码：jnp0mr
-      账号：am@gru.win密码：jnp0mr
-      账号：615564377密码：89u832
-      账号：fanzhong046密码：54558660
-      
-
 # 优酷
       免费账号因为使用人数较多，容易被限制导致无法登录.
-      4.18
-      选择账号密码登录y1ye2r@163.com密码yy58305
-      选择账号密码登录hn02sv@163.com密码yy73524
-      
-      4.16
-      选微博登录hhcogp865575@game.weibo.com密码fvuy29498
-      选微博登录kqcbdt761595@game.weibo.com密码eyvl08833
-      选微博登录qwsapl480120@game.weibo.com密码lfpv50792
+      4.26
+      4.26 更新
+      选择账号密码登录tcew703668@163.com密码kk3327
+      选择账号密码登录tcjo017691@163.com密码kk3327
+
 
 # 腾讯视频
-      账号：1703448680  密码：wuaipojie123  （QQ登陆）
+      电脑请使用客户端登录，不要网页版。
+      手机登录方式：打开腾讯视频-- 选择qq登录--然后添加QQ
+      
+      4.26 更新
+      账号：1911192061密码：bbs.vip60.cn354
 
 # 虾米
       账号：13035523102  密码：286467426a
