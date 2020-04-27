@@ -15,6 +15,16 @@
      手机登陆的小伙伴记得把同步关了
      请选择微博账号登陆
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
+     4.27
+     账号：16532964077 密码：mianfeivip.com5r
+     账号：16534101273 密码：mianfeivip.comfg
+     账号：wt20gy12@touzi580.com 密码：5t25k9dnq0
+     账号：0bv4xth7@touzi580.com 密码：1mr168zz6t
+     账号：16532964655 密码：mianfeivip.comad
+     账号：16532966520 密码：mianfeivip.comds
+     账号：16532966788 密码：mianfeivip.comfd
+     账号：16532966577 密码：mianfeivip.comgf
+     
      4.26
      账号：16534101184 密码：mianfeivip.comhj
      账号：16534101187 密码：mianfeivip.comfd
@@ -41,6 +51,10 @@
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
       如果登录显示频繁，点击游戏后登录。
+      4.27
+      账号：cvhpihdfd密码：tczbvqbf
+      账号：bcfzxuoyz密码：xtauisoc
+      
       4.26
       账号：chibeng343密码：54558660
       账号：youzong913密码：54558660
