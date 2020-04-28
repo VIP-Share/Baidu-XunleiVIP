@@ -11,10 +11,28 @@
 
 # 百度网盘超级会员
 
-     请大家遵纪守法，低调使用！多多支持百度，pandownload就是典型，不要以身试法！
-     手机登陆的小伙伴记得把同步关了
+     请大家遵纪守法，低调使用！多多支持百度!!!
+     手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！
      请选择微博账号登陆
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
+     4.28
+     账号：16534101269 密码：mianfeivip.comdf
+     账号：16532967233 密码：mianfeivip.com85
+     账号：16534101270 密码：mianfeivip.comab
+     账号：16532967600 密码：mianfeivip.com45
+     账号：16534101272 密码：mianfeivip.comsj
+     账号：16532967633 密码：mianfeivip.coms9
+     账号：16534101336 密码：mianfeivip.comfa
+     账号：16532967255 密码：mianfeivip.comj9
+     账号：17060214058    密码：a123456
+     账号：18206694136    密码：wva83027
+     账号：16532966577    密码：mianfeivip.comds
+     账号：13728909584    密码：vbb41502
+     账号：17057945174    密码：435792lg
+     账号：15773453928    密码：qoghop072
+     账号：15920806937    密码：pjq99245
+     账号：13163528406    密码：uuuu3333
+     
      4.27
      账号：16532964077 密码：mianfeivip.com5r
      账号：16534101273 密码：mianfeivip.comfg
@@ -34,19 +52,6 @@
      账号：16532964300密码：mianfeivip.com6g
      账号：16534101246密码：mianfeivip.comas
      账号：16534101248密码：mianfeivip.comsd
-
-     4.25
-     账号：16532633921 密码：mianfeivip.com64
-     账号：13574861440 密码：dydeym444
-     账号：lp0krp17@touzi580.com密码：5fgq2hr6kl
-     账号：16532633961密码：mianfeivip.comg6
-     账号：16532633963密码：mianfeivip.comd3
-     账号：16534101220密码：mianfeivip.come5
-     账号：16532964300密码：mianfeivip.com6g
-     账号：13289225624 密码：23er45
-     账号：16534101167 密码：mianfeivip.comtg
-     账号：lb8bj50fgudy@game.weibo.com密码：4g0wy3747
-     
 
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
