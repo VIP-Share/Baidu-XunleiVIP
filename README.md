@@ -15,18 +15,19 @@
      手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！
      请选择微博账号登陆
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
-     4.29(新)
-     账号：16534101270密码：mianfeivip.coma
-     账号：16532967600密码：mianfeivip.com45
-     账号：16534101272密码：mianfeivip.comsj
-     账号：17057945174密码：435792lg
-     账号：13787108438密码：xsckrv275
-     账号：13574861440密码：dydeym444
-     账号：16534101273密码：mianfeivip.comfg
-     账号：16534101253密码：mianfeivip.com43
-     账号：17057945174密码：435792lg
-     账号：16532964655密码：mianfeivip.comad
-     账号：16532966520密码：mianfeivip.comds
+     4.30
+     账号：13289225624密码：23er45
+     账号：16534101270 密码：mianfeivip.comab
+     账号：16532967600 密码：mianfeivip.com45
+     账号：mianfeivip.comsj 密码：mianfeivip.comsj
+     账号：17057945174 密码：435792lg
+     账号：13574861440 密码：dydeym444
+     账号：16532964655 密码：mianfeivip.comad
+     账号：16532966520 密码：mianfeivip.comds
+     账号：16532967233 密码：mianfeivip.com85
+     账号：13417087050 密码：aaf57159
+     账号：0014386480034 密码：qxb373257
+     账号：17300797397 密码：xiaoxkt520
      
      4.28
      账号：16534101269 密码：mianfeivip.comdf
@@ -56,15 +57,6 @@
      账号：16532966788 密码：mianfeivip.comfd
      账号：16532966577 密码：mianfeivip.comgf
      
-     4.26
-     账号：16534101184 密码：mianfeivip.comhj
-     账号：16534101187 密码：mianfeivip.comfd
-     账号：16534101253 密码：mianfeivip.com43
-     账号：16534101220 密码：mianfeivip.come5
-     账号：16532633963密码：mianfeivip.comd3
-     账号：16532964300密码：mianfeivip.com6g
-     账号：16534101246密码：mianfeivip.comas
-     账号：16534101248密码：mianfeivip.comsd
 
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
