@@ -15,6 +15,26 @@
      手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！
      请选择微博账号登陆
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
+     5.1
+     账号：16532967600 密码：mianfeivip.com45
+     账号：16532964633 密码：mianfeivip.comgd
+     账号：4tygh27p@touzi580.com 密码：7glgewcbet
+     账号：mianfeivip.comsj 密码：mianfeivip.comsj
+     账号：13875435810 密码：ouhihx872
+     账号：17841011887 密码：mih56666
+     账号：13144650942 密码：uuuu3333
+     账号：15211856732 密码：ilpdgd885
+     账号：15214499826 密码：ebt56916
+     账号：13574861440 密码：dydeym444
+     账号：hggpbtdl@touzi580.com 密码：8q11g7tdkg 
+     账号：hggpbtdl@touzi580.com 密码：8q11g7tdkg
+     账号：14527380938     密码：gk85185572 
+     账号：16534101253     密码：mianfeivip.com43
+     账号：13808433920     密码：axtwzz947 
+     账号：18807318265     密码：gydxqu622   
+     账号：13875435810     密码：ouhihx872    
+     账号：17057945174     密码：435792lg
+     
      4.30
      账号：13289225624密码：23er45
      账号：16534101270 密码：mianfeivip.comab
@@ -29,7 +49,7 @@
      账号：0014386480034 密码：qxb373257
      账号：17300797397 密码：xiaoxkt520
      
-     4.28
+     4.29
      账号：16534101269 密码：mianfeivip.comdf
      账号：16532967233 密码：mianfeivip.com85
      账号：16534101270 密码：mianfeivip.comab
@@ -46,21 +66,16 @@
      账号：15773453928    密码：qoghop072
      账号：15920806937    密码：pjq99245
      账号：13163528406    密码：uuuu3333
-     
-     4.27
-     账号：16532964077 密码：mianfeivip.com5r
-     账号：16534101273 密码：mianfeivip.comfg
-     账号：wt20gy12@touzi580.com 密码：5t25k9dnq0
-     账号：0bv4xth7@touzi580.com 密码：1mr168zz6t
-     账号：16532964655 密码：mianfeivip.comad
-     账号：16532966520 密码：mianfeivip.comds
-     账号：16532966788 密码：mianfeivip.comfd
-     账号：16532966577 密码：mianfeivip.comgf
-     
 
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
       如果登录显示频繁，点击游戏后登录。
+      5.1
+      账号ubwtkzsky密码x684121
+      账号bdftwzhfn密码mtuevwku
+      账号dchbchgxe密码rtgpfpvh
+      账号vpmiqyzsl密码zihmtyai
+      
       4.27
       账号：cvhpihdfd密码：tczbvqbf
       账号：bcfzxuoyz密码：xtauisoc
