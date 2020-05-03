@@ -93,28 +93,17 @@
      账号：13417087050 密码：aaf57159
      账号：0014386480034 密码：qxb373257
      账号：17300797397 密码：xiaoxkt520
-     
-     4.29
-     账号：16534101269 密码：mianfeivip.comdf
-     账号：16532967233 密码：mianfeivip.com85
-     账号：16534101270 密码：mianfeivip.comab
-     账号：16532967600 密码：mianfeivip.com45
-     账号：16534101272 密码：mianfeivip.comsj
-     账号：16532967633 密码：mianfeivip.coms9
-     账号：16534101336 密码：mianfeivip.comfa
-     账号：16532967255 密码：mianfeivip.comj9
-     账号：17060214058    密码：a123456
-     账号：18206694136    密码：wva83027
-     账号：16532966577    密码：mianfeivip.comds
-     账号：13728909584    密码：vbb41502
-     账号：17057945174    密码：435792lg
-     账号：15773453928    密码：qoghop072
-     账号：15920806937    密码：pjq99245
-     账号：13163528406    密码：uuuu3333
 
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
       如果登录显示频繁，点击游戏后登录。
+      5.3
+      账号ztxtyxmeq密码u110597
+      账号ievclkflz密码whzxrbog
+      账号njwdcrilr密码k298819
+      账号vgcydymsb密码pvxmsdhk
+      账号hajmujtnd密码h183794
+      
       5.1
       账号ubwtkzsky密码x684121
       账号bdftwzhfn密码mtuevwku
@@ -131,6 +120,13 @@
       
 # 优酷
       免费账号因为使用人数较多，容易被限制导致无法登录.
+      5.3
+      选微博登录whigrd991509@game.weibo.com密码grcn36563
+      选微博登录bzkadi304960@game.weibo.com密码tbuu55758
+      选择账号密码登录nrfd14@163.com密码du202020
+      选择账号密码登录zyrd69@163.com密码du202020
+      选微博登录eqhqwy330768@game.weibo.com密码lsvh01948
+      
       4.29
       选择账号密码登录xksy167383@163.com密码km44441
       选择账号密码登录xktm422570@163.com密码km44441
