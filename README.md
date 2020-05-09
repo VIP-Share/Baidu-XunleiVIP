@@ -26,6 +26,18 @@
      手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！
      请选择微博账号登陆!!!刚发出来的时候都是有效的！
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
+     5.9
+     账号：18890645754 密码：eftjcd829
+     账号：16532967557 密码：mianfeivip.comfd
+     账号：16534101327 密码：mianfeivip.comzd
+     账号：18867492416 密码：yhdjyo841
+     账号：16532967337 密码：mianfeivip.comt
+     账号：16534101321 密码：mianfeivip.comhf
+     账号：16532967433密码：mianfeivip.comea
+     账号：16534101324密码：mianfeivip.comnn
+     账号：16532967511密码：mianfeivip.combd
+     账号：18558256580密码：trd729531
+
      5.8
      账号：14586824857密码：egko576867
      账号：16532967337密码：mianfeivip.comt
@@ -71,26 +83,6 @@
      账号：16532967337 密码：mianfeivip.comt
      账号：16534101321 密码：mianfeivip.comhf
      账号：16534101253 密码：mianfeivip.com43
-
-     5.3
-     账号：16534101327 密码：mianfeivip.comzd
-     账号：18867492416 密码：yhdjyo841
-     账号：17876846154 密码：ywg59655
-     账号：13610975984 密码：jlmf.dh
-     账号：16534101253 密码：mianfeivip.com43 
-     账号：16532967337 密码：mianfeivip.comt
-     账号：16534101321 密码：mianfeivip.comhf
-     账号：16532967433 密码：mianfeivip.comea
-     账号：16534101324    密码：mianfeivip.comnn
-     账号：16532967511    密码：mianfeivip.combd
-     账号：18558256580    密码：trd729531
-     账号：16534101253    密码：mianfeivip.com43
-     账号：13808433920    密码：axtwzz947
-     账号：18807318265    密码：gydxqu622
-     账号：13875435810    密码：ouhihx887
-     账号：18397795371    密码：xgozpb108
-     账号：16534101261    密码：mianfeivip.comg5
-     账号：16532967366    密码：mianfeivip.com66
 
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
