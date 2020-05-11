@@ -26,6 +26,17 @@
      手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！
      请选择微博账号登陆!!!刚发出来的时候都是有效的！
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
+     5.11
+     账号：13859573376 密码：ljy7831988cll
+     账号：15907328859 密码：kfwvg6554
+     账号：18890645754 密码：eftjcd829
+     账号：13467707455 密码：uugwfp214
+     账号：16534101324 密码：mianfeivip.comnn
+     账号：16532967511 密码：mianfeivip.combd
+     账号：16534101327 密码：mianfeivip.comzd
+     账号：16532963911 密码：mianfeivip.com42
+     账号：18867492416 密码：yhdjyo841
+     
      5.10
      账号：13122956070  密码：ucdqi7282
      账号：16532966511  密码：mianfeivip.comzd
@@ -74,17 +85,6 @@
      账号：16532967321密码：mianfeivip.comd4
      账号：16532967557 密码：mianfeivip.comfd
      账号：16532967725密码：mianfeivip.com74
-     
-     5.6
-     账号：16534101324 密码：mianfeivip.comnn
-     账号：16532967511密码：mianfeivip.combd
-     账号：16534101327 密码：mianfeivip.comzd
-     账号：13610975984 密码：jlmf.dh（到2021）
-     账号：16532963911 密码：mianfeivip.com42
-     账号：18867492416 密码：yhdjyo841
-     账号：16534101336 密码：mianfeivip.comfa
-     账号：16534101150 密码：mianfeivip.comdf
-     账号：16534101258 密码：mianfeivip.comdg
 
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
