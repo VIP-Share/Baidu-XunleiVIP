@@ -26,15 +26,26 @@
      手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！
      请选择微博账号登陆!!!刚发出来的时候都是有效的！
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
+     5.19
+     账号：16532966511 密码：mianfeivip.comzd
+     账号：16534101328 密码：mianfeivip.comds
+     账号：13125997634 密码：uuuu3333
+     账号：13861072569 密码：47614ccee
+     账号：15843469848 密码：a159159
+     账号：16534101325 密码：mianfeivip.comvc
+     账号：16532964543 密码：mianfeivip.comfa
+     账号：16532966511 密码：mianfeivip.comzd
+     账号：18474982053 密码：ucxlnd201
+     
      5.17
-     账号：16532964577密码：mianfeivip.comf4
-     账号：16532964366密码：mianfeivip.comfg
+     账号：16532964577 密码：mianfeivip.comf4
+     账号：16532964366 密码：mianfeivip.comfg
      账号：16534101327 密码：mianfeivip.comzd
-     账号：16534101324密码：mianfeivip.comnn
-     账号：13487886219密码：sbzezs537
+     账号：16534101324 密码：mianfeivip.comnn
+     账号：13487886219 密码：sbzezs537
      账号：18867492416 密码：yhdjyo841
-     账号：15200325279密码：tnpggc341
-     账号：15621087847密码：mjdh3837
+     账号：15200325279 密码：tnpggc341
+     账号：15621087847 密码：mjdh3837
      
      5.15
      账号：16534101184密码：mianfeivip.comdd
@@ -58,42 +69,6 @@
      账号：16532966722密码：mianfeivip.comfw
      账号：16534101173密码：mianfeivip.com34
      
-     5.12
-     账号：13861072569密码：47614ccee
-     账号：18354929849密码：qwe123
-     账号：18890645754密码：eftjcd829
-     账号：16532966321密码：mianfeivip.comdf
-     账号：16532967255密码：mianfeivip.comj9
-     账号：16534101325密码：mianfeivip.comvc
-     账号：16532967321密码：mianfeivip.comd4
-     账号：16532967557密码：mianfeivip.comfd
-     账号：16532967725密码：mianfeivip.com74
-     账号：joqrjh62gg5b@game.weibo.com密码：pnnn3kkwj
-     
-     5.11
-     账号：13859573376 密码：ljy7831988cll
-     账号：15907328859 密码：kfwvg6554
-     账号：18890645754 密码：eftjcd829
-     账号：13467707455 密码：uugwfp214
-     账号：16534101324 密码：mianfeivip.comnn
-     账号：16532967511 密码：mianfeivip.combd
-     账号：16534101327 密码：mianfeivip.comzd
-     账号：16532963911 密码：mianfeivip.com42
-     账号：18867492416 密码：yhdjyo841
-     
-     5.10
-     账号：13122956070  密码：ucdqi7282
-     账号：16532966511  密码：mianfeivip.comzd
-     账号：16532967300  密码：mianfeivip.comes
-     账号：13467707455  密码：uugwfp214
-     账号：16532967527 密码：mianfeivip.comgb
-     账号：16534101328 密码：mianfeivip.comds
-     账号：16532967577 密码：mianfeivip.comgf
-     账号：16532963911 密码：mianfeivip.com42
-     账号：16532967337 密码：mianfeivip.comt
-     账号：16534101321 密码：mianfeivip.comhf
-     账号：16534101253 密码：mianfeivip.com43
-
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
       如果登录显示频繁，点击游戏后登录。
@@ -112,20 +87,7 @@
       账号njwdcrilr密码k298819
       账号vgcydymsb密码pvxmsdhk
       账号hajmujtnd密码h183794
-      
-      5.1
-      账号ubwtkzsky密码x684121
-      账号bdftwzhfn密码mtuevwku
-      账号dchbchgxe密码rtgpfpvh
-      账号vpmiqyzsl密码zihmtyai
-      
-      4.27
-      账号：cvhpihdfd密码：tczbvqbf
-      账号：bcfzxuoyz密码：xtauisoc
-      
-      4.26
-      账号：chibeng343密码：54558660
-      账号：youzong913密码：54558660
+
       
 # 优酷
       免费账号因为使用人数较多，容易被限制导致无法登录.
@@ -139,15 +101,6 @@
       选择账号密码登录nrfd14@163.com密码du202020
       选择账号密码登录zyrd69@163.com密码du202020
       选微博登录eqhqwy330768@game.weibo.com密码lsvh01948
-      
-      4.29
-      选择账号密码登录xksy167383@163.com密码km44441
-      选择账号密码登录xktm422570@163.com密码km44441
-      
-      4.26 更新
-      选择账号密码登录tcew703668@163.com密码kk3327
-      选择账号密码登录tcjo017691@163.com密码kk3327
-
 
 # 腾讯视频
       电脑请使用客户端登录，不要网页版。
