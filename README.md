@@ -26,7 +26,14 @@
      手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！
      请选择微博账号登陆!!!刚发出来的时候都是有效的！
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
-     5.22(weibo.com账号当天可用)
+     5.25
+     账号：16532966700密码：mianfeivip.comxs
+     账号：18160629557密码：xx2580
+     账号：15115755535密码：fyulbc452
+     账号：svipshare06@sina.com密码：444555yy
+     账号：svipshare05@sina.com密码：888999yy
+     
+     5.22
      账号：15197279778密码：besnms8079
      账号：14586824857密码：egko576867
      账号：15273203387密码：cfrwie294
@@ -68,6 +75,16 @@
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
       如果登录显示频繁，点击游戏后登录。
+      5.25
+      账号vwxdrwrzo密码vauvylld
+      账号pekgbetka密码jiyqhosd
+      账号：cvrpsafcx密码：ayshcyku
+      账号：jrtvvcwio密码：hniwufhz
+      账号：pdzvdrqew密码：luqwmvqg
+      账号：dysluiijl密码：tivqqoon
+      账号：mtcaobbs8a密码：hu106e
+      账号：xiktdvexn4密码：zqm828
+      
       5.22
       账号yanrong253密码54558660
       账号pinggang517密码54558660
