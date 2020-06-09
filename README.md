@@ -27,6 +27,13 @@
      手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！个人信息别上传到网盘！！！
      请选择微博账号登陆!!!刚发出来的时候都是有效的！
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
+     6.9
+     账号：16519350216密码：pmf6722410
+     账号：13434286031密码：asd5533
+     账号：13787019634密码：wwcjwe454
+     账号：kcqryl572338@game.weibo.com密码：obpj68723
+     账号：kam60vj6n2pq@game.weibo.com密码：9h9qxefta
+     
      6.6
      账号：13289225624密码：1wert6
      账号：13185482562密码：1wert6
@@ -66,18 +73,7 @@
      账号：15115755535密码：fyulbc452
      账号：svipshare06@sina.com密码：444555yy
      账号：svipshare05@sina.com密码：888999yy
-     
-     5.22
-     账号：15197279778密码：besnms8079
-     账号：14586824857密码：egko576867
-     账号：15273203387密码：cfrwie294
-     账号：khg70uqx9a61@game.weibo.com密码：a5d91ip1s
-     账号：ksnhir1gfsz5@game.weibo.com密码：2xbxm1tgv
-     账号：kyowk693072s@game.weibo.com密码：0r0tup97x
-     账号：kyowk693072s@game.weibo.com密码：mianfeivip.comfw
-     账号：kupfwq903351@game.weibo.com密码：jrgh36164
 
-     
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
       如果登录显示频繁，点击游戏后登录。
